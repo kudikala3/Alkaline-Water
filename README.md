@@ -1,0 +1,1 @@
+Pranadhara is an Indian brand that specialises in water purification products designed to increase the pH levels of drinking water. Their primary focus is on alkalising and mineralising regular water to support hydration and body acidity balance. 
